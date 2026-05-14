@@ -1,0 +1,1 @@
+# G-nes_Paneli
